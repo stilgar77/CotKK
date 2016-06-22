@@ -1,1 +1,1 @@
-# CotKK
+# Castle of the Kobold King
